@@ -17,3 +17,6 @@ Actor Clint Eastwood played the role of the man with no name: a man - only calle
 * Challenge freeing Marisol from Ramon’s captivity. What began as a business transaction has now become personal. The Stranger is now willing to risk his life in order to let Marisol go. She seems to remind him of something from his past. As he tells her, “I knew someone like you once. There was no one there to help.”
 
 * Personality stoic, silent, watchful, and just. The Stranger doesn’t go for frills. He can draw his revolver faster than any man in the West, a skill that he uses strictly for justice.
+
+## The Man with No Name to the undertaker \[after same gunfight\]:
+> *My mistake: four coffins.*
