@@ -20,3 +20,5 @@ Actor Clint Eastwood played the role of the man with no name: a man - only calle
 
 ## The Man with No Name to the undertaker \[after same gunfight\]:
 > My mistake: four coffins.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Clint_Eastwood_-_1960s.JPG/788px-Clint_Eastwood_-_1960s.JPG"/>
