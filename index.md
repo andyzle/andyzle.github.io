@@ -19,4 +19,4 @@ Actor Clint Eastwood played the role of the man with no name: a man - only calle
 * Personality stoic, silent, watchful, and just. The Stranger doesn’t go for frills. He can draw his revolver faster than any man in the West, a skill that he uses strictly for justice.
 
 ## The Man with No Name to the undertaker \[after same gunfight\]:
-> *My mistake: four coffins.*
+> My mistake: four coffins.
