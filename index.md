@@ -1,1 +1,1 @@
-A website for my favourite character is currently being built here!
+<h1> Stranger - a man without name </h1>
